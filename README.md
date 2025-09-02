@@ -18,3 +18,4 @@ https://www.reddit.com/r/vibecoding/comments/1n6e1sk/someone_make_a_trillion_dol
 <img width="1461" height="831" alt="Screenshot 2025-09-02 at 12 08 17 PM" src="https://github.com/user-attachments/assets/3c53abae-7458-445d-8a09-9b754cc4f973" />
 
 
+<img width="487" height="519" alt="Screenshot 2025-09-02 at 1 36 10 PM" src="https://github.com/user-attachments/assets/ee347d18-a334-45d4-b7fe-1f034f0de7a3" />
